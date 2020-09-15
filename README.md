@@ -1,1 +1,0 @@
-# hastings711.github.io
